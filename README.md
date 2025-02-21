@@ -1,1 +1,1 @@
-# 3.haftan-n-devi
+# 3.haftanın ödevi
